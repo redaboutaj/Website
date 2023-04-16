@@ -1,3 +1,3 @@
 kbadr.github.io
 =====================
-PhD Student in statistics
+Financial Sector Economist
